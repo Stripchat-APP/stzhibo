@@ -9,10 +9,7 @@ https://heysocks.net/share/x29xRB
 New registered users, remember to verify your email, otherwise you won't be able to log in again  
 新注冊用戶，記得验证邮箱，不然無法二次登录  
   
-官网：    
-https://stzhibo.com  
-分支 branch：
-https://stlivexxx.com  
+官网：https://stzhibo.com 分支branch：https://stlivexxx.com  
 <a href="https://stlivexxx.com"><img src="https://github.com/stripchat-kiki-2025/stlivexxx/blob/main/image/938d22c6.png" alt="image" style="max-width: 100%;">  
   
   
